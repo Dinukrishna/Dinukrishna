@@ -49,7 +49,7 @@ Currently developing my analytical and technical skills through an AI-Driven Dat
 
 ## 🤝 Connect With Me
 
-- **LinkedIn:** [Dinukrishna](www.linkedin.com/in/dinukrishnaofficial)
+- **LinkedIn:** [Dinukrishna](https://www.linkedin.com/in/dinukrishnaofficial/)
 - **GitHub:** [Dinukrishna](https://github.com/Dinukrishna)
 - **Email:** dinukrishnadk40@gmail.com
 
